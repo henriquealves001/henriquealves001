@@ -1,4 +1,4 @@
-<p align="center"><img src="https://gifdb.com/images/high/gojo-satoru-with-striking-lightning-fhq9k741hj63w0gf.webp](https://gifdb.com/images/high/gojo-satoru-jujutsu-kaisen-protagonist-ltw7vb9t7qr2qspz.webp"></p>
+<p align="center"><img src="https://gifdb.com/images/high/gojo-satoru-with-striking-lightning-fhq9k741hj63w0gf.webp](https://gifdb.com/images/high/gojo-satoru-jujutsu-kaisen-protagonist-ltw7vb9t7qr2qspz.webp(https://aniyuki.com/wp-content/uploads/2023/09/aniyuki-gojo-satoru-gif-23.gif)"></p>
 
 # 👩🏻‍💻 Henrique Alves
 
