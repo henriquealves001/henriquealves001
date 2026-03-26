@@ -1,6 +1,8 @@
-<p src="https://gifdb.com/images/high/gojo-satoru-with-striking-lightning-fhq9k741hj63w0gf.webp"></p>
+
 
 # 👩🏻‍💻 Henrique Alves
+
+<p align="center"><img src="https://gifdb.com/images/high/gojo-satoru-with-striking-lightning-fhq9k741hj63w0gf.webp"></p>
 
 **`aluno de sistemas da informação`**
 
