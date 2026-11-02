@@ -6,7 +6,7 @@
 
 **`aluno de sistemas da informação`**
 
-Me chamo Henrique Alves, tenho 20 anos e sou natural de São Paulo. Concluí o ensino médio no Colegio da Policia Militar de Itabuna na Bahia. Atualmente, estou cursando Sistemas da Informação no IFBA de itapetinga. Sou bastante curioso em tecnologia e quero aprender cada vez mais.
+Me chamo Henrique Alves, tenho 21 anos e sou natural de São Paulo. Concluí o ensino médio no Colegio da Policia Militar de Itabuna na Bahia. Atualmente, estou cursando Sistemas da Informação no IFBA de itapetinga. Sou bastante curioso em tecnologia e quero aprender cada vez mais.
 
    <a href="https://github.com/henriquealves001">
         <img 
